@@ -4,7 +4,7 @@
 
 This will be stuff about me...
 
-I hate cats 😠 jk
+I **HATE** cats 😠 jk
 
 ## Education
 
@@ -16,7 +16,7 @@ Unemployed gang 👍
 
 ## Projects
 
-****EPIC**** project supa kicka masta mafia **WICKED** 🤣
+***EPIC*** project supa kicka masta mafia **WICKED** 🤣
 
 ## Contact Me
 
