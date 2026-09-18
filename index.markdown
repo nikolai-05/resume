@@ -16,4 +16,8 @@ Unemployed gang 👍
 
 ## Projects
 
+****EPIC**** project supa kicka masta mafia **WICKED** 🤣
+
 ## Contact Me
+
++1 123-456-7890
