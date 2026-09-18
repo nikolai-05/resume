@@ -4,7 +4,7 @@
 
 This will be stuff about me...
 
-I **HATE** cats 😠 jk
+I hate cats 😠 jk
 
 ## Education
 
